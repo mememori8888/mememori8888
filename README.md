@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mememori8888
-- 👀 I’m interested in ...戦争、水素
+- 👀 I’m interested in ...戦争
 - 🌱 I’m currently learning ...linux
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...https://www.lancers.jp/profile/hideman_mememori8888
